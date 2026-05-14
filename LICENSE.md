@@ -1,4 +1,4 @@
-#  
+#  smart pet simulator 99 Script is the best pet simulator 99 Script, featuring auto-upgrade and aimbot. Safe and powerful for all your needs.
 
 
 
